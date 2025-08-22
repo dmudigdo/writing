@@ -4,7 +4,7 @@ Notes from WCH and QMS
 
 ## Short tasks later
 Rat poison
-Notify Lucy of MYOB progress, general journal for LSL
+Notify Lucy of MYOB progress, general journal for LSL soon
 
 ## Long tasks now
 MYOB
