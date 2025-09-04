@@ -34,5 +34,9 @@ While Australia has been relatively progressive in advocating for inclusivity fo
 
 In Australia we are still way behind the eight ball compared to the Europeans when it comes to weaning ourselves off Microsoft. However, with small initiatives such as sending out PDF instead of .docx, you and I can start progressing twoards a small change from a grassroots level. A next-level initiative would be to try out a Linux desktop, and for the digitally adventurous: to ultimately remove your dependence on Microsoft. From a one-person initiative, this could move to small businesses or small community organisations and so on.
 
+Making a change to test
+
+Making another change to test
+
 
 
