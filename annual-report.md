@@ -16,13 +16,13 @@ Jenny Liddle
 Mayer & Laura
 Priscilla
 
-## 
-
 ## Collaborations
 Warehouse Pharmacy
 Foodbank
 Breadcrumbs
 Rotary
+
+## Committee
 
 
 ## Staff
