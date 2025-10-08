@@ -10,7 +10,7 @@ New classes
 
 Attended SRL grant writing
 
-Attended Committee talk
+Attended Committee talk (Knitted Knockers)
 
 NIECH AGM
 
@@ -22,6 +22,8 @@ East meets West
 
 New programs
 
+Cut programs
+
 Vermont South jam stall
 
 Drafted reply
@@ -30,7 +32,24 @@ New volunteer
 
 Windows 10 computers
 
-Kate Fisher
+Kath Fisher
+
+NBN
+
+Breadcrumbs, new shop, new logo
+
+Consumer Affairs Victoria
+
+Last Food bank
+
+Emergency Whitehorse meetings
+
+CALD women's health
+
+SRL Grant
+
+East Meets West: Bill
+
 
 
 ## Admin
