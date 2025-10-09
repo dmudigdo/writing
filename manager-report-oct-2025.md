@@ -20,22 +20,22 @@
 **Consumer Affairs Victoria** - Our account is inactive, need to activate
 
 ## Grants
-Attended SRL grant writing workshop
+**SRL Grant** - Attended SRL grant writing workshop, given possible relocation, should we still apply?
 
 ## Meetings
-Theo Zographos (Liberal federal candidate)
+**Theo Zographos** - Liberal federal candidate meet & greet
 
-Noella Gray (City of Whitehorse Community Strengthening Officer)
+**Noella Gray** - City of Whitehorse Community Strengthening Officer meet & greet
 
-NIECH AGM
+**NIECH AGM** - NHVic CEO spoke about the upcoming "Keep Our Doors Open" NH campaing (NIECH will do the same at BNH AGM). 
 
-2 x Emergency Whitehorse meetings - Drafted reply to Whitehorse Review
+**2 x Emergency Whitehorse meetings** - Drafted reply to Whitehorse Review
 
 ## Events
-Jam Stalls & Vermont South & Forest Hill
+**Jam Stalls** - Vermont South & Forest Hill
 
 ## Upcoming Events
-East meets West - Bill (BNH neighbour) will be featured
+East Meets West - Bill (BNH neighbour) will be featured
 
 Women's Health Talk - Jia will present women's health issues to a group of Mandarin speakers
 
