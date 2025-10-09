@@ -3,11 +3,13 @@
 ## Admin
 **Reckon to MYOB** - MYOB now operational, migration almost complete (payroll not done yet - Lucy on leave).
 
-**NBN** - Bill's removalist truck took out our NBN cable.
+**NBN** - Bill's removalist truck took out our NBN cable, highlighted risk management strategies (house mobile phone, house WhatsApp, wireless modem on standby).
 
 **Committee Training** - Attended by Jeff, Annie, Jia & Didi.
 
 **Consumer Affairs Victoria** - Our account is inactive, need to activate.
+
+**Outdoor holding cupboard break-in** - Outdoor food bank holding cupboard was broken into, we have decided not to hold food there anymore, as the locks entice thieves.
 
 ## Staff
 **Cheryl** - Long Service Leave paid out, 60+ hours of TOIL to go, lump sum or weekly?
@@ -23,7 +25,7 @@
 **New programs** - Topic discussion group, Afternoon Taichi, Knitting Group, Recycling Plant Talk.
 
 ## Community Initiatives
-**Breadcrumbs** - Has a new bread source, new logo & web presence to attract volunteers.
+**Breadcrumbs** - Has a new bread source (Bakers Delight Camberwell Place), new logo & web presence to attract volunteers.
 
 **Food bank** - Last order taken, heard from Oz Harvest, we are still on the waiting list.
 
